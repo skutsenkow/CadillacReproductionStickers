@@ -9,15 +9,9 @@ This will provide a list of Frequently Asked Questions for obtaining a Window St
 <div align="left">
 
 ## What years of window stickers do you reproduce?
-  1980-1992*. Other years (1959-1979, 1993-1999) are also available but would be on a case by case basis as it would depend on information available. I am always working to accumulate more copies of original stickers for these years. Feel free to Email or Private message me to see if your vehicle is available!
- *See “What do I need...” section below on what information is required for each year. 
-
-## Hello
-text
-text
-text
-
-
+  1980-1992*. Other years (1959-1979, 1993-1999) are also available but would be on a case by case basis as it would depend on information available. I am always working to accumulate more copies of original stickers for these years. Feel free to [email me](mailto:skutsenkow@gmail.com) or [Private Message](https://www.facebook.com/CadillacWindowStickers) me on Facebook to see if your vehicle is available! <br><br>
+  ***Click [What do I need...](#What-do-I-need-to-do-to-get-a-window-sticker-made?) section below on what information is required for each year.***
+ 
 ## How long does it take to make a window sticker?
   Depending on demand and volume of work, I can typically have a preview of what your sticker will look like finished and emailed to you with a two week period. Upon your review, approval and payment, I will print the sticker out and mail shortly after.  
 ## What if my sticker gets damaged or lost, can I get a replacement?
@@ -62,8 +56,4 @@ Ready to have a window sticker created? Email skutsenkow@gmail.com and provide t
 ***Please also attach a copy of your vehicle build sheet, vehicle invoice or an original sticker.***
 
 Also consider visiting Facebook to view sample photos and testimonials. 
-https://www.facebook.com/CadillacWindowStickers 
-
-
-
-Click [Hello](#Hello) to open first heading. 
+https://www.facebook.com/CadillacWindowStickers
