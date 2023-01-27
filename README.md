@@ -26,8 +26,8 @@ All information including factory options, prices and codes are based off origin
 ##  What kind of paper is the window sticker printed on?
   Original window stickers came in various shapes and sizes but a lot were 9x12 or 10x12 and printed on form paper. Currently my stickers are printed on card stock and closely match the size of the original. I apologize but I do not have a way to print these on form paper. I high recommend having the sticker laminated. <br><br>
  ***Disclaimers:*** <br>
-  • Be advised that using copies of original window stickers as templates means that the final product could have an "aged" look to it. I do my best to clean them up and make presentable. I personally think this gives them a more realistic look and feel!
-    • All reproduced window stickers will have a written disclaimer at the bottom that reads: "This is not an original General Motors Corp. Window Price Sticker - Reproduction". This is to protect myself and the authenticity of the car, especially if it was ever being judged for a contest. No exceptions!
+  • Be advised that using copies of original window stickers as templates means that the final product could have an "aged" look to it. I do my best to clean them up and make presentable. I personally think this gives them a more realistic look and feel! <br>
+    • All reproduced window stickers will have a written disclaimer at the bottom that reads: <i> "This is not an original General Motors Corp. Window Price Sticker - Reproduction". </i> This is to protect myself and the authenticity of the car, especially if it was ever being judged for a contest. <u> ***No exceptions!*** </u>
 ## What is the price for a window sticker?
   Window stickers cost $60 ($5 for each additional copy) and $15 for a replacement. $5 lamination fee for each print (optional). $10 shipping and handling. PayPal is the preferred form of payment.
 ## What do I need to do to get a window sticker made?  
