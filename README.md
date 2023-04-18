@@ -29,7 +29,7 @@ All information including factory options, prices and codes are based off origin
   • Be advised that using copies of original window stickers as templates means that the final product could have an "aged" look to it. I do my best to clean them up and make presentable. I personally think this gives them a more realistic look and feel! <br>
     • All reproduced window stickers will have a written disclaimer at the bottom that reads: <i> "This is not an original General Motors Corp. Window Price Sticker - Reproduction". </i> This is to protect myself and the authenticity of the car, especially if it was ever being judged for a contest. <u> ***No exceptions!*** </u>
 ## What is the price for a window sticker?
-  Window stickers cost $60 ($5 for each additional copy) and $15 for a replacement. $5 lamination fee for each print (optional). $10 shipping and handling. PayPal is the preferred form of payment.
+  Window stickers cost $65 ($5 for each additional copy) and $15 for a replacement. $5 lamination fee for each print (optional). $15 shipping and handling. PayPal is the preferred form of payment.
 ## What do I need to do to get a window sticker made?  
   In order to reproduce an accurate window sticker, ***one*** of the following will be <u>required</u> at minimum: 
 - An original window sticker
